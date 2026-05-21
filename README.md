@@ -1,0 +1,1 @@
+# GestaoTurmaSenai.Amaral_2C
